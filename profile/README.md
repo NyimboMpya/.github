@@ -1,4 +1,4 @@
-## Hi there 👋
+## Nyimbo Mpya 🎵
 
 You bring the passion. We bring the music.
 
