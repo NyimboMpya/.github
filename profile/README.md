@@ -11,4 +11,15 @@ But, placing your music on sites like Spotify, SoundCloud and iTunes is only hal
 Listen to Songs
 
 Discover, stream, and share a constantly expanding mix of music from emerging and major artists around the world.
--->
+
+## Find Us on Social Media
+
+[Facebook](https://www.facebook.com/nyimbompya.co.tz)
+
+[Instagram](https://www.instagram.com/nyimbompya_)
+
+[Twitter](https://www.twitter.com/nyimbompya)
+
+[TikTok](https://www.tiktok.com/@nyimbompya)
+
+[Kwenye Bio](https://www.kwenye.bio/@nyimbompya)
